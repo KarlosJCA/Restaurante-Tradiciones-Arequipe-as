@@ -1,1 +1,1 @@
-# Restaurante-Tradiciones-Peruanas
+# Restaurante-Tradiciones-Arequipeñas
